@@ -1,4 +1,4 @@
-# 👋 Hey, I'm Max!
+# 👋 Hey, I'm Andy!
 
 ### Developer · Programmer · Digital Creator
 
